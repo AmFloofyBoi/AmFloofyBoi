@@ -1,7 +1,8 @@
 - 👋 Hi, I’m @AmFloofyBoi
-- 👀 I’m interested in Books
-- 🌱 I’m currently learning Books
-- 💞️ I’m looking to collaborate on books
+- 👀 I’m interested in haha no
+-
+- 🌱 I’m currently learning haha no
+- 💞️ I’m looking to collaborate on haha no
 - 📫 How to reach me haha no
 
 <!---
